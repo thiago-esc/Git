@@ -1,4 +1,4 @@
 #Github
 
 Confia em ti Thiago!
-Você já está indo de eencontro ao seu objetivo!
+Você já está indo de encontro ao seu objetivo!
